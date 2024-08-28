@@ -1,4 +1,5 @@
-Hi, I'm Viktoria
+Hi, I'm Viktoria,
+
 coming from Austria and currently living in Germany
 
 I'm interested in Sustainability topics 🌱, especially in Sustainable Finance but also in Big Data and AI as I am convinced that these tools will
