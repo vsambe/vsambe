@@ -10,9 +10,10 @@ and Monitoring system which means looking at the collection, methodology and ana
 and economic impacts (similar to ESG) according to their Theory of Change. In other words, this is the sweet spot where we are talking about Big Data 
 and potentially AI. 
 
-Thus, I am working towards being able to create my own AI models to measure and evaluate sustainability related impacts/achievements. 
+Thus, I love working in the field of a Investment Analst / Financial Analyst / ESG and Impact Analyst / Sustainability Analyst or similar positions. 
+Also, I am slowly but consistently working towards being able to create my own AI models to measure and evaluate sustainability related impacts/achievements. 
 
-I have also experience in the Executive Search industry, where I "headhunted" 👀 potential candidates for C-Level and Board of Directors positions within
+Additionally, I have experience in the Executive Search industry, where I "headhunted" 👀 potential candidates for C-Level and Board of Directors positions within
 big Multinational Corporations worldwide. 
 
 Personally, I am obsessed with my dog. In fact, she is a special dog in a wheelchair but we are still able to go hiking and swimming and Stand-Up-Paddling which
